@@ -4,9 +4,9 @@
 ### Hola compañeros👋
 
 - 👨🏫 Ejecutiva de cuentas - TELVISTA.
-- 💜 Me gusta demostrar mi compañerismo y apoyo a quien lo necesite sin esperar nada a cambio.
-- 👋 Terca, Original.
-- ✨No soy religiosa pero tengo mucha fe.
+- 💜 Honesta e hiperactiva.
+- 👋 Aventurera y muy sociable .
+- ✨Comprometida con su trabajo, disfruto la vida a pesar de las adversidades..
 
 
 ## Horario Laboral
